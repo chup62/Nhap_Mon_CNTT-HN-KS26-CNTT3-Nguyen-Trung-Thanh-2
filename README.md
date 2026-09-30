@@ -1,1 +1,1 @@
-# Nhap_Mon_CNTT-HN-KS26-CNTT3-Nguyen-Trung-Thanh-2
+[HN-KS26-CNTT3_Kỹ Năng Làm Việc Nhóm_session1_bài tập thực hành lớn_Nhóm 4 (1).docx](https://github.com/user-attachments/files/32847032/HN-KS26-CNTT3_K.Nang.Lam.Vi.c.Nhom_session1_bai.t.p.th.c.hanh.l.n_Nhom.4.1.docx)
